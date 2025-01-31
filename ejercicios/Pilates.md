@@ -30,3 +30,15 @@ El dominio en el control de los movimientos  se transforma en la fluidez durante
 La respiración es uno de los principios fundamentales del método Pilates. Cada ejercicio tiene una respiración diferentes, pero todos ellos cuentan con un patrón respiratorio repetido. Una buena respiración es la base para realizar correctamente los movimientos de los ejercicios. Evitar cortar la respiración es muy importante para lograr el control de la musculatura del CORE, que es la base de la estabilidad de los movimientos.
 6. Centralización.
 El centro, que se conoce como CORE, está formado por la zona abdominal, la columna lumbar, la musculatura pélvica y el diafragma. La musculatura implicada en estas áreas es sobre la que se sustenta el método Pilates y que hace posible cumplir con cada uno de sus principios. Sin control del centro (CORE) no hay fluidez, precisión o control de los movimientos.
+
+## Consejos y precauciones 
+
+-Establecer objetivos: Considera qué quieres lograr con el pilates y define metas claras. 
+-Practicar con regularidad: La constancia es importante para mejorar tu técnica y rendimiento. 
+-Escuchar tu cuerpo: Presta atención a cómo te sientes y a lo que tu cuerpo necesita. 
+-Respirar correctamente: Inhala por la nariz y exhala por la boca, adaptando la intensidad de tu respiración al movimiento. 
+-Prestar atención a la alineación: Asegúrate de realizar los movimientos con precisión y de que tu pelvis esté estabilizada. 
+-Hidratarte y alimentarte bien: Bebe agua y evita comidas pesadas antes de la clase. 
+-Preparar tu mente: Llega a la clase con calma y mentalmente preparado para concentrarte. 
+-Variar tu rutina: Incorpora variedad en tus ejercicios para desafiarte a ti mismo. 
+-Tomar días de descanso: Descansar es importante para que tu cuerpo se recupere. 
