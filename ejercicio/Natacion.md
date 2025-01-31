@@ -19,3 +19,10 @@
 -Precalienta y estira antes de nadar.
 -Usa un chaleco salvavidas si no sabes nadar.
 
+## Consejos y precauciones 
+
+-No comas dentro del agua.
+-Realiza primero el movimiento de los brazos y luego el de las piernas.
+-En cada movimiento, la cabeza debe salir del agua al menos una vez.
+-Toca con las dos manos a la vez.
+-Respeta el espacio y los turnos de otros nadadores.
