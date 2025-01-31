@@ -93,3 +93,30 @@ Lo primero que tienes que tener en cuenta es que si tienes alguna lesión o dole
 Para notar los beneficios del yoga es imprescindible que lo practiques a diario pues, de este modo, tu cuerpo irá amoldándose al ejercicio, además, conseguirás despejar tu mente al menos una vez al día. Es mejor que dediques 15 minutos cada día que no que hagas 2 horas solo 2 o 3 veces por semana.
 Para poder practicar yoga a diario, lo mejor es que te reserves un momento del día para ello. Un buen momento es antes de cenar, antes de dormir o justo al despertarte.
 
+##  Consejos y precauciones 
+
+El yoga en general es seguro para la mayoría de las personas. Pero puede ser necesario evitar algunas posturas de yoga, o modificar posturas si usted:
+
+Está embarazada
+Tiene presión arterial alta
+Tiene glaucoma
+Tiene ciática
+Tiene artritis
+Asegúrese de notificar a su instructor de yoga si tiene cualquiera de estos padecimientos o cualquier otra lesión o problema de salud. Un maestro de yoga calificado debe ser capaz de ayudarle a encontrar posturas que sean seguras para usted.
+
+La mayoría de las clases de yoga dura de 45 a 90 minutos. Todos los estilos de yoga incluyen tres componentes básicos:
+
+Respiración. Concentrarse en su respiración es una parte importante del yoga. Su maestro puede ofrecerle instrucciones sobre ejercicios de respiración durante la clase.
+Posturas. Las posturas, o posiciones, de yoga son una serie de movimientos que ayudan a aumentar la fortaleza, la flexibilidad y el equilibrio. Estas varían en dificultad desde acostarse boca arriba en el suelo a complicadas posturas de equilibrio.
+Meditación. Las clases de yoga usualmente terminan con un período breve de meditación. Esto tranquiliza la mente y lo ayuda a relajarse.
+
+Si bien el yoga generalmente es seguro, aún puede lastimarse si hace una posición de forma incorrecta o si se exige demasiado. Estos son algunos consejos para mantener la seguridad al hacer yoga.
+
+Si usted tiene una afección médica, hable con su proveedor de atención médica antes de comenzar a hacer yoga. Pregunte si hay alguna postura que deba evitar.
+Comience lentamente y aprenda lo básico antes de esforzarse en exceso.
+Elija una clase que sea adecuada para su nivel. Si no está seguro, pregúntele al instructor.
+No se exija más allá de su nivel de comodidad. Si no puede realizar una posición, pídale a su instructor que lo ayude a modificarla.
+Haga preguntas si no está seguro de cómo hacer una posición.
+Lleve consigo una botella de agua y beba mucha agua. Esto es especialmente importante en el yoga caliente.
+Use ropa que le permita moverse con libertad.
+Escuche a su cuerpo. Si siente dolor o fatiga, deténgase y descanse.
