@@ -69,3 +69,19 @@ Muchos os dirán que es cosa de “globeros” y, de hecho, muy pocos lo llevan,
 Es muy importante que siempre estés atento a lo que te rodea, en todo momento. Cualquier despiste puede ser fatal, desde controlar los huecos de las alcantarillas, los baches del asfalto o los cristales hasta los automóviles, peatones, perros, etcétera que entran y se incorporan a la vía por las que circulas. ¡Hay que circular con tres ojos!
 10. Disfruta del ciclismo:
 A pesar de los peligros, recuerda que practicas el ciclismo por placer, ocio o porque es un deporte que te gusta. Sé positivo y no discutas con los conductores, si puedes evitarlo. Intenta disfrutar del ciclismo al máximo, desde la calma y la responsabilidad. Ser cortés y respetuoso con los demás usuarios de la vía ayuda a fomentar una convivencia segura en la carretera.
+
+## Consejos y precauciones
+
+Mantén una distancia adecuada con la bicicleta que te antecede, así tendrás tiempo para frenar en caso de que el otro ciclista frene de manera brusca. Nunca traslades personas sobre el manubrio, ya que dificulta tu equilibrio y la probabilidad de sufrir un accidente de tránsito aumenta.
+
+Respeta semáforo ciclista
+Al entrar a un camino, mira hacia ambos lados para asegurarte de que no venga ningún vehículo. Respeta siempre los semáforos y ceda el paso frente a los peatones.
+
+Viraje mano ciclista
+Nunca saques las dos manos del manubrio. Sólo suelta una mano cuando necesites hacer alguna seña a fin de que los demás conductores sepan qué movimiento vas a hacer, esto es muy importe, sobre todo si vas a realizar algún viraje.
+
+Precaución vía ciclista
+No compitas ni adelantes de forma temeraria, tampoco zigzaguees entre vehículos ni te tomes de otro vehículo para aumentar tu velocidad, acciones como estas te ponen en serio peligro. Además, debes tener en cuenta que, en situaciones de pavimento mojado o con arena, la capacidad de frenado de tu bicicleta será menor, por lo que debes tomar la precaución de reducir la velocidad en tales circunstancias.
+
+Presta atención
+Siempre debes prestar atención a la ruta y a las condiciones del entorno, sobre todo a las puertas que se abren inesperadamente, a los vehículos que vienen en sentido contrario, a los pasajeros que bajan de un bus detenido, a los hoyos en el camino y a los intermitentes de los demás vehículos.
