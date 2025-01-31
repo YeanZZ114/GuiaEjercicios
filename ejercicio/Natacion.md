@@ -11,3 +11,11 @@
 -Relaja la musculatura al movilizar casi todos los músculos del cuerpo de manera coordinada, sin posiciones fijas durante demasiado tiempo.
 -Al carecer de impacto como los deportes terrestres, permite fortalecer la musculatura sin someterla al estrés de la gravedad.
 
+## Instrucciones
+
+-Mantén la calma.
+-Descansa si estás cansado.
+-Hidrátate.
+-Precalienta y estira antes de nadar.
+-Usa un chaleco salvavidas si no sabes nadar.
+
