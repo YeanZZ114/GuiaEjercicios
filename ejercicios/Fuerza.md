@@ -36,3 +36,13 @@ Los ejercicios de fuerza son entrenamientos musculares en los que se utilizan di
 -Descansa entre 1 y 3 minutos entre cada serie. 
 -Repite el ejercicio hasta que la última repetición sea un esfuerzo. 
 -Repite la rutina de ejercicios al menos dos veces a la semana. 
+
+## Consejos y precauciones 
+
+-Elegir un peso adecuado
+-Mantener una postura correcta
+-Respirar
+-Descansar entre series
+-No sobrecargar las articulaciones
+-Mantenerse hidratado
+-Evitar el dolor excesivo
