@@ -46,3 +46,26 @@ Si eres de los que utiliza las E-Bikes te recomendamos los pedales Eltin BMX que
 En Copenhague moverse en bicicleta se toma tan en serio que los padres llevan a sus hijos pequeños en bicicletas de carga, y la mayoría de los niños montan en sus propias bicicletas a la edad de siete años. El 59% de todos los habitantes de la ciudad utilizan esta forma de transporte para llegar al trabajo.
 En Holanda el ciclismo evita alrededor de 6500 muertes cada año, y los holandeses tienen una esperanza de vida medio año más larga debido al uso de la bicicleta.
 Si tienes miedo a que te puedan robar la bicicleta y por eso no la utilizas para moverte por ciudad, debes saber que hay candados muy seguros para evitar estos siniestros. La marca Caiman Lock cuenta con una de las mejores gamas de candados del mercado.
+
+## Instrucciones
+
+1. Conoce el reglamento de circulación:
+Saber las normas de circulación que afectan a los conductores permitirá ser conscientes de lo que se puede y no puede hacer como ciclista en la carretera. Los ciclistas deben seguir las mismas reglas de tráfico que los vehículos motorizados, incluyendo respetar las señales de tráfico y las luces de semáforo.
+2. Elije carreteras con arcén y poco transitadas:
+Circular por el arcén es quizás el modo más seguro de circular por carretera; si además están poco transitadas, la situación es casi ideal.
+3. Intenta no rodar solo:
+Circular en pareja o en pequeños grupos de ciclistas suele ser más seguro. Dos o tres ciclistas son más visibles que uno solo, además siempre tendrás quien te pueda atender en caso de accidente o avería.
+4. Usa ropa llamativa:
+Aunque para muchos lo “pro” es ir de negro, es mucho mejor hacerse visible con indumentaria de colores llamativos: rojos, azules, amarillo, blanco… Ahora incluso los colores flúor están de moda y se puede encontrar mucha ropa para bici con estos colores llamativos. Un consejo: el casco se ve mucho en carretera, cómpralo del color más llamativo que puedas.
+5. Sé autosuficiente:
+Cuando salgas a la carretera, aunque lo hagas acompañado, debes ser capaz de solucionar cualquier imprevisto: pinchazo, caída, comida… Intenta salir siempre con el móvil, con un kit de recambios y algo de dinero en efectivo. Lo ideal es que también lleves una prenda de quita y pon por su si cambia el tiempo y tienes que abrigarte o protegerte de la lluvia, especialmente en el caso de una ruta larga.
+6. Luces:
+Usa luces delante y detrás siempre que vayas a rodar a horas de poca luz, son baratas, no pesan casi nada y te hacen visible. La luz trasera roja es ideal llevarla siempre en la bici, además es obligado llevarla al cruzar un túnel a cualquier hora del día.
+7. Baja con precaución:
+No te tomes las bajadas como si estuvieras en un circuito de velocidad, aprovecha para descansar y relajarte. Recuerda que a mayor velocidad mayor riesgo… Si quieres ir a tope, aprovecha las subidas, es dónde más se mejora la condición física.
+8. Usa un retrovisor:
+Muchos os dirán que es cosa de “globeros” y, de hecho, muy pocos lo llevan, pero es un elemento barato y muy práctico (y barato) para mejorar la seguridad.
+9. Nunca bajes la guardia:
+Es muy importante que siempre estés atento a lo que te rodea, en todo momento. Cualquier despiste puede ser fatal, desde controlar los huecos de las alcantarillas, los baches del asfalto o los cristales hasta los automóviles, peatones, perros, etcétera que entran y se incorporan a la vía por las que circulas. ¡Hay que circular con tres ojos!
+10. Disfruta del ciclismo:
+A pesar de los peligros, recuerda que practicas el ciclismo por placer, ocio o porque es un deporte que te gusta. Sé positivo y no discutas con los conductores, si puedes evitarlo. Intenta disfrutar del ciclismo al máximo, desde la calma y la responsabilidad. Ser cortés y respetuoso con los demás usuarios de la vía ayuda a fomentar una convivencia segura en la carretera.
