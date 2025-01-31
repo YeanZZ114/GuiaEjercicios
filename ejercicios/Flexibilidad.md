@@ -13,3 +13,14 @@ Los ejercicios de flexibilidad son uno de los cuatro tipos de ejercicio, junto c
 -Mejora la coordinación muscular.
 -Aumenta el rango de movilidad disponible en las articulaciones.
 
+## Instrucciones 
+
+-Calienta el cuerpo con actividad ligera durante 5 a 10 minutos. 
+-Realiza los estiramientos de manera suave y lenta. 
+-Respira durante los estiramientos. 
+-Estira hasta que sientas un ligero tirón. 
+-Mantén el estiramiento durante 10 a 30 segundos. 
+-Repite el estiramiento 2 a 4 veces de ambos lados. 
+-Concéntrate en los principales grupos musculares, como las pantorrillas, los muslos, las caderas, la región lumbar, el cuello y los hombros. 
+-Si tienes afecciones médicas o lesiones, consulta a un profesional de atención médica. 
+
