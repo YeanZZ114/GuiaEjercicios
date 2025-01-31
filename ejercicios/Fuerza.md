@@ -29,3 +29,10 @@ Los ejercicios de fuerza son entrenamientos musculares en los que se utilizan di
 -El principal factor a la hora de mantener una postura correcta son los músculos. Una musculatura fuerte contribuye a mantener una buena postura sin esfuerzo. Una postura saludable no solo previene dolores y contracturas de la espalda, cuello y hombros, sino que también mejora la función del aparato circulatorio y digestivo, entre otros.
 -Mejora el aspecto físico.
 
+## Instrucciones 
+
+-Elige un peso que puedas levantar cómodamente entre 12 y 15 veces. 
+-Haz de 3 a 5 series de cada ejercicio. 
+-Descansa entre 1 y 3 minutos entre cada serie. 
+-Repite el ejercicio hasta que la última repetición sea un esfuerzo. 
+-Repite la rutina de ejercicios al menos dos veces a la semana. 
