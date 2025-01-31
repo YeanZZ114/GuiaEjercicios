@@ -49,3 +49,39 @@ Luego de caer a la lona, si el referí cuenta de forma regresiva a partir de die
 El número de rounds son establecidos previamente durante la planificación del evento.
 Son tres los jueces que califican cada episodio de la pelea.
 Ahora que ya conoces las reglas básicas de este deporte, te recomendamos ver algunas peleas y analizar las posibles faltas.
+
+## Consejos y precauciones
+
+Consejos útiles para boxeadores
+1. Use su cabeza. Luche con su cerebro y no solo con las manos. Aventaje en el pensar a su rival y podrá ganarle a pegar.
+2. Manténgase laxo. La tensión endurece y hace lentos los reflejos y produce cansancio.
+3. Consérvese en buen estado. Nada hay capaz de sustituir a un buen estado físico.
+4. Conozca los fundamentos. Habrá muchas ocasiones de usarlos.
+5. Aparezca confiado en todo momento: si está lastimado o cansado no lo demuestre.
+6. No olvide que su rival está tan cansado o maltrecho como usted. No se dé por vencido.
+7. La mano izquierda da los golpes más seguros; úsela!
+8. Manténgase en movimiento. Quieto será golpeado, pero no salte ni haga movimientos innecesarios.
+9. Conserve siempre las manos altas. Al terminar de golpear reasuma la guardia.
+10. Mantenga el mentón replegado.
+11. pegue en el momento en el que su rival esté a su alcance, no contenga sus golpes una vez pensados.
+12. Si falla un golpe o pierde el equilibrio, entre el clinch y espere que el árbitro los separe.
+13. Una vez ganada la posición interior manténgase cerca y pegue.
+14. Intrigue a su rival con una serie de maniobras.
+15. No subestime a su adversario. Recuerde; todos son peligrosos.
+16. Tenga los pies debajo del cuerpo. Cuando se está fuera de equilibrio el cuerpo está expuesto a los golpes.
+17. Pegue duro, significa buen negocio, arroje el golpe, no lo empuje.
+18. Pegue a través del objetivo, no hasta él.
+19. Pegue solo si hay una brecha, no golpee solo, por hacer algo.
+20. Avance cuando pegue, es inconveniente pegar en retirada.
+21. Haga exactamente lo que su rival no quiere ni espera que usted haga.
+22. Nunca pare una tentativa. Solo se necesita una pero efectiva y oportuna.
+23. El lugar más seguro en boxeo es cerca, con las manos altas.
+24. Hay dos momentos en que puede ser lastimado; cuando va hacia el contrario o cuando se retira de él.
+25. Cuándo el adversario apunta a pegar, ¡ muévase!
+26. Fíjese cuidadosamente lo que su oponente hace antes de lanzar un golpe.
+27. Anote mentalmente cualquier peculiaridad.
+28. La contra natural para un jab o directo de izquierda es un cross de derecha.
+29. Un golpe directo aventajará siempre a un golpe curvo.
+30. El ataque con las dos manos para ser efectivo debe empezar desde la posición interior.
+31. Un lugar muy seguro es la posición de guardia exterior.
+32. Los golpes de derecha y los ganchos cortos son contragolpes, a menos que usted quiera ser golpeado, no los use fuera de lugar.
